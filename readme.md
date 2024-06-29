@@ -1,0 +1,1 @@
+https://www.aclnz.com/interests/blogs/solved-how-to-add-port-1521-in-firewall
